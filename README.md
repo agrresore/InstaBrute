@@ -30,6 +30,3 @@
 
 ### https://www.youtube.com/channel/UCCgy7i_A5yhAEdY86rPOinA
 
-### Viddeo Tutorial
-
-### https://www.youtube.com/watch?v=a-moMHuZX_Q&t=11s
